@@ -1,3 +1,7 @@
-# 12a12
-# 12a12
-# websitewithae
+# CODETRENGIAY
+# sa:  🎙️
+# kinus: 💻
+# tub: 🤓
+# winter: 🗣️
+# bin: 💂
+# chu2: 🖌️
